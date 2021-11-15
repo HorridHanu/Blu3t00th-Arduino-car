@@ -17,3 +17,7 @@
 * 𝙅𝙪𝙢𝙥𝙚𝙧 𝙒𝙞𝙧𝙚𝙨 𝙆𝙞𝙩	× 1	
 * 𝙐𝙎𝘽 𝘾𝙖𝙗𝙡𝙚 𝙏𝙮𝙥𝙚 𝘼/𝘽	× 1
 # 𝙸𝚖𝚊𝚐𝚎
+![IMG_20210727_202116_910_2](https://user-images.githubusercontent.com/86579429/141721572-72fa40db-6157-4a8f-a482-4ca07967ba0f.jpg
+![IMG_20210727_202140_034_2](https://user-images.githubusercontent.com/86579429/141721577-dcec0f86-4e98-4221-83a7-b9313797da29.jpg)
+![IMG_20210727_202131_848_2](https://user-images.githubusercontent.com/86579429/141721582-b269a6de-3ac7-444e-9795-b0d4b3f101d9.jpg)
+)
